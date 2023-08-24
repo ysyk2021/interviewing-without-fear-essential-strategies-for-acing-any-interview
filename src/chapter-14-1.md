@@ -1,5 +1,3 @@
-Tools and resources for interview preparation and success
-=========================================================================================================================
 
 Interviewing can be a nerve-wracking experience, but with the right tools and resources, you can build your interviewing skills and ace any interview. In this chapter, we will discuss various tools and resources that you can use to prepare for an interview and increase your chances of success.
 

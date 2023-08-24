@@ -1,5 +1,3 @@
-Strategies for Building Confidence and Overcoming Fear
-===========================================================================================================
 
 Preparing for a job interview can be intimidating, but there are strategies you can use to build confidence and overcome fear. In this chapter, we will discuss strategies for preparing for the interview without fear.
 

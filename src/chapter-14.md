@@ -1,5 +1,3 @@
-Chapter 14: Building Your Fearless Interviewing Skills Toolkit
-==============================================================
 
 Building a fearless interviewing skills toolkit involves equipping oneself with the necessary tools and resources to prepare for and succeed in any job interview. In this chapter, we will explore tools and resources for interview preparation and success, techniques for continuous improvement of your interviewing skills, and identifying areas for improvement and how to address them.
 

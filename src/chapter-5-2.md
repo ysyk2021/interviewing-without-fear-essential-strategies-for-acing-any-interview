@@ -1,5 +1,3 @@
-Techniques for managing interview anxiety
-==============================================================================================
 
 Managing interview anxiety is essential to successfully acing any job interview. In this chapter, we will explore techniques for preparing for the interview without fear.
 

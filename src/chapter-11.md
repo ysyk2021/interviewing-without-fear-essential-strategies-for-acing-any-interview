@@ -1,5 +1,3 @@
-Chapter 11: Mastering Nonverbal Communication
-=============================================
 
 Nonverbal communication is an essential part of the interview process and can impact how you are perceived by the interviewer. In this chapter, we will explore strategies for mastering nonverbal communication during interviews.
 

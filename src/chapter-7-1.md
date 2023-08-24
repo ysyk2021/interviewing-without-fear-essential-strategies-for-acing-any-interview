@@ -1,5 +1,3 @@
-Identifying your unique selling points
-=======================================================================================
 
 During a job interview, it's important to demonstrate your value proposition to the employer. In other words, what unique skills and experiences do you bring to the table that make you the best fit for the job? In this chapter, we will discuss strategies for identifying your unique selling points and demonstrating your value proposition during a job interview.
 

@@ -1,5 +1,3 @@
-Demonstrating leadership skills and potential
-=======================================================================================================
 
 Demonstrating leadership skills and potential is an important part of many job interviews, particularly for management positions. In this chapter, we will discuss advanced interviewing strategies and tactics for showcasing your leadership abilities.
 

@@ -1,5 +1,3 @@
-Strategies for negotiating benefits and perks
-==========================================================================================
 
 Negotiating salary and benefits can be an intimidating prospect, but it's an essential part of the job search process. In this chapter, we will discuss strategies for negotiating benefits and perks.
 

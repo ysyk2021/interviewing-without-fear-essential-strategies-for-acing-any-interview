@@ -1,5 +1,3 @@
-What to expect during the interview process
-===========================================================================================
 
 The interview process can vary depending on the company and the type of job you are applying for. However, there are certain common elements that you can expect during most job interviews. In this chapter, we will discuss what to expect during the interview process.
 

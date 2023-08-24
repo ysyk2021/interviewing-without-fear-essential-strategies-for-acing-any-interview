@@ -1,5 +1,3 @@
-Strategies for staying top-of-mind with hiring managers
-====================================================================================================
 
 Following up after an interview is a crucial step in the job search process. It shows your continued interest in the position, reinforces your qualifications, and helps you stay top-of-mind with hiring managers. In this chapter, we will discuss strategies for following up after an interview.
 

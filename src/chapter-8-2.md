@@ -1,5 +1,3 @@
-Group Interviews
-=======================================================================
 
 Group interviews can be intimidating and challenging for job seekers, but with the right preparation and approach, they can be a valuable opportunity to showcase skills and qualities. In this chapter, we will explore strategies for navigating group interviews.
 

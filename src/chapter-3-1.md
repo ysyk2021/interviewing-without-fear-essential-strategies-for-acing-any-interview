@@ -1,5 +1,3 @@
-Gathering information about the company and its culture
-========================================================================================================
 
 Researching the company and position before an interview is essential for demonstrating your knowledge and interest in the job. However, it's not enough to just understand the job requirements and responsibilities; you should also gather information about the company's culture. In this chapter, we will discuss strategies for gathering information about the company and its culture.
 

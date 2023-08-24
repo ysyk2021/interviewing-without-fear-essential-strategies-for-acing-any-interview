@@ -1,5 +1,3 @@
-Strategies for addressing potential red flags or concerns
-========================================================================================================================
 
 During a job interview, you may encounter difficult questions that address potential red flags or concerns about your qualifications or experience. In this chapter, we will discuss strategies for addressing these types of questions with ease.
 

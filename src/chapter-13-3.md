@@ -1,5 +1,3 @@
-Tips for turning negative aspects into positives
-===============================================================================================================
 
 Interviews are often full of difficult questions, and some of them can be particularly challenging to answer. However, with the right mindset and strategy, you can turn negative aspects into positives and come out of the interview looking like a top candidate. In this chapter, we will discuss tips for answering difficult interview questions with ease.
 

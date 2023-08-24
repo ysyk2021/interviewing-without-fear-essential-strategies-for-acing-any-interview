@@ -1,5 +1,3 @@
-Mastering Nonverbal Communication - Controlling Your Own Nonverbal Cues
-===================================================================================
 
 Nonverbal communication, such as body language and facial expressions, can play a critical role in the success of an interview. In this chapter, we will explore the strategies for mastering nonverbal communication and controlling your own nonverbal cues.
 

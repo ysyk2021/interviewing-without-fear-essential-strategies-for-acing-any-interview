@@ -1,5 +1,3 @@
-Techniques for Continuous Improvement of Your Interviewing Skills
-=================================================================================================================================
 
 Interviewing skills can always be improved, regardless of experience level or career stage. In this chapter, we will explore techniques for continuous improvement of your interviewing skills and building a toolbox of skills that can be applied in any interview setting.
 

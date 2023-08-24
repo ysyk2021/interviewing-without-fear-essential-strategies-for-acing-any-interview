@@ -1,5 +1,3 @@
-Creating a professional online presence
-================================================================================
 
 In today's digital age, it's essential to have a professional online presence that showcases your skills and expertise. Building your personal brand through social media and professional networking sites can help you stand out to potential employers and establish yourself as an expert in your field. In this chapter, we will discuss strategies for creating a professional online presence.
 

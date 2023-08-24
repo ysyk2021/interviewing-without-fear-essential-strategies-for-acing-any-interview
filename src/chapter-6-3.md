@@ -1,5 +1,3 @@
-Answering Common Interview Questions with Confidence - Communicating Effectively During the Interview
-================================================================================================================
 
 Communicating effectively during an interview is essential for answering common interview questions with confidence. In this chapter, we will explore the strategies for effective communication during an interview.
 

@@ -1,5 +1,3 @@
-Understanding the job requirements and responsibilities
-========================================================================================================
 
 Before going into a job interview, it's important to research the company and position in detail. This allows you to understand the job requirements and responsibilities and demonstrate your knowledge and interest during the interview. In this chapter, we will discuss strategies for researching the company and position.
 

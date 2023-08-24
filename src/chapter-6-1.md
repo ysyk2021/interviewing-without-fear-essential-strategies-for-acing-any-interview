@@ -1,5 +1,3 @@
-Techniques for answering common interview questions
-====================================================================================================================
 
 During a job interview, there are certain questions that are commonly asked. Being prepared to answer these questions confidently can help you stand out from other candidates and increase your chances of landing the job. In this chapter, we will discuss techniques for answering common interview questions with confidence.
 

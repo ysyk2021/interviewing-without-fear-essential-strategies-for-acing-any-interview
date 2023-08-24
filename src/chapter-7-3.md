@@ -1,5 +1,3 @@
-Providing evidence of your qualifications
-==========================================================================================
 
 During a job interview, it's essential to demonstrate your value proposition by providing evidence of your qualifications. This includes showcasing your skills, achievements, and experiences that make you the best fit for the position. In this chapter, we will discuss strategies for providing evidence of your qualifications during a job interview.
 

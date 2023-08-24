@@ -1,5 +1,3 @@
-Chapter 9: Following Up After the Interview
-===========================================
 
 Following up after the interview is an essential part of the job search process. It demonstrates your continued interest in the opportunity and can help you stay top-of-mind with hiring managers. In this chapter, we will explore strategies for following up after the interview.
 

@@ -1,5 +1,3 @@
-Techniques for answering difficult or unexpected questions
-=========================================================================================================================
 
 During a job interview, you may encounter difficult or unexpected questions that can catch you off-guard. In this chapter, we will discuss techniques for answering difficult interview questions with ease.
 

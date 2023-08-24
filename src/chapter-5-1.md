@@ -1,5 +1,3 @@
-Tips for Creating an Effective Interview Preparation Plan
-==============================================================================================================
 
 Preparing for a job interview can be nerve-wracking, but creating an effective interview preparation plan can help alleviate anxiety and increase confidence. In this chapter, we will explore tips for creating an effective interview preparation plan.
 
