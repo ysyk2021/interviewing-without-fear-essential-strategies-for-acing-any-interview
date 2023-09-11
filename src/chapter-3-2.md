@@ -1,5 +1,4 @@
-Chapter 9: Understanding the Job Requirements and Responsibilities
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of thoroughly understanding the job requirements and responsibilities before entering an interview. Gaining a deep comprehension of what the role entails is essential for effectively demonstrating your qualifications and aligning yourself with the employer's needs.
 

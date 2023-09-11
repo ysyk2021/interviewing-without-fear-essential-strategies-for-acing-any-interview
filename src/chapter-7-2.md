@@ -1,5 +1,4 @@
-Chapter 6: Showcasing Your Skills, Achievements, and Experience
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the art of effectively showcasing your skills, achievements, and experience during interviews. Mastering this skill is crucial for leaving a lasting impression on interviewers and demonstrating why you are the best fit for the job.
 

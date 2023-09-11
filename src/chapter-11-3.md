@@ -1,5 +1,4 @@
-Chapter 9: Creating a Positive First Impression
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The age-old saying, "You never get a second chance to make a first impression," holds particularly true in the context of interviews. The first few minutes of your interaction can set the tone for the entire meeting. In this chapter, we'll uncover strategies to ensure that the initial impression you make is a stellar one.
 

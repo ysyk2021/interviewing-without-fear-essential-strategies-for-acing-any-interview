@@ -1,5 +1,4 @@
-Chapter 12: Group Interviews
-============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Group interviews, where multiple candidates are assessed simultaneously, have become increasingly common in today's competitive job market. This chapter explores essential strategies for navigating group interviews successfully and acing this unique interview format.
 

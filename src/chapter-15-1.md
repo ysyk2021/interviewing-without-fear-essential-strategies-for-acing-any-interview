@@ -1,5 +1,4 @@
-Chapter 17: Expert Strategies for Acing Job Interviews
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest to excel in job interviews, it's invaluable to explore advanced strategies that go beyond the basics. This chapter delves into expert-level techniques to help you consistently ace interviews and secure the job you desire.
 

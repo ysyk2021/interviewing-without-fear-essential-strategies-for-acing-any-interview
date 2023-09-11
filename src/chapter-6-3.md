@@ -1,5 +1,4 @@
-Chapter 6: Communicating Effectively During the Interview
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the art of effective communication during interviews. Mastering the ability to express yourself clearly, confidently, and persuasively is crucial for making a positive impression and acing any interview.
 

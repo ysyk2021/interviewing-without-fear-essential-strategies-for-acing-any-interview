@@ -1,5 +1,4 @@
-Chapter 7: Handling Difficult Interview Questions and Situations
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential strategies for effectively managing challenging interview questions and navigating tricky situations. Interviewers often use these questions to assess your skills, character, and ability to handle pressure. By mastering these techniques, you can increase your chances of acing any interview with confidence.
 

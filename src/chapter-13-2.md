@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Addressing Potential Red Flags or Concerns
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to ace any interview, it's essential to be proactive in addressing potential red flags or concerns that may arise during the interview process. This chapter will provide you with invaluable strategies to handle such situations with confidence and poise.
 

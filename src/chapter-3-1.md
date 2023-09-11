@@ -1,5 +1,4 @@
-Chapter 3: Gathering Information About the Company and Its Culture
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 One of the fundamental keys to acing any interview is having a deep understanding of the company you're interviewing with, including its values, culture, and mission. In this chapter, we will explore the essential strategies for gathering comprehensive information about the company and its culture, ensuring you're well-prepared to impress your interviewers.
 

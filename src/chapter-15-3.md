@@ -1,5 +1,4 @@
-Chapter 14: Proven Methods for Making a Lasting Impact on the Interviewer
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of acing any interview, it's crucial to leave a lasting and positive impression on the interviewer. This chapter explores proven methods and strategies to ensure that you make a memorable mark during and after the interview process.
 

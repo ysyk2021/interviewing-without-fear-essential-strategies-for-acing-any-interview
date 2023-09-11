@@ -1,5 +1,4 @@
-Chapter 8: Reading and Interpreting Body Language
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of acing any interview, mastering the art of reading and interpreting body language can be a game-changer. This chapter will delve into the essential strategies for understanding non-verbal cues, which can provide valuable insights into your interviewer's thoughts and feelings.
 

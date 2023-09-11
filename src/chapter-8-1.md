@@ -1,5 +1,4 @@
-Chapter 16: Phone and Video Interviews
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Phone and video interviews have become commonplace in the modern job application process. This chapter explores essential strategies for excelling in these remote interview formats, ensuring that distance doesn't hinder your chances of success.
 

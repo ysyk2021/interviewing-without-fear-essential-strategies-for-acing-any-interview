@@ -1,5 +1,4 @@
-Chapter 7: Providing Evidence of Your Qualifications
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of providing concrete evidence of your qualifications during an interview. Demonstrating your skills, knowledge, and abilities with specific examples is key to convincing employers that you are the right candidate for the job.
 

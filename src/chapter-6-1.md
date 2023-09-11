@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Answering Common Interview Questions
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a variety of techniques and strategies to help you effectively answer the most common interview questions. Understanding how to respond confidently and authentically to these questions is essential for acing any interview.
 

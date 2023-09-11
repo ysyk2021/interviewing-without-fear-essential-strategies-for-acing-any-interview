@@ -1,5 +1,4 @@
-Chapter 14: Strategies for Staying Top-of-Mind with Hiring Managers
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into effective strategies for remaining memorable and top-of-mind with hiring managers throughout the interview process and beyond. Building a lasting impression can be instrumental in securing the job you desire.
 

@@ -1,5 +1,4 @@
-Chapter 12: Sending Thank-You Notes and Follow-Up Emails
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of sending thank-you notes and follow-up emails after an interview. These courteous and strategic gestures can leave a positive impression, reinforce your qualifications, and increase your chances of success in the interview process.
 

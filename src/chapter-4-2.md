@@ -1,5 +1,4 @@
-Chapter 4: Creating a Professional Online Presence
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, having a strong online presence is crucial for job seekers. In this chapter, we will explore strategies and techniques to help you establish and maintain a professional online presence that can enhance your chances of acing any interview.
 

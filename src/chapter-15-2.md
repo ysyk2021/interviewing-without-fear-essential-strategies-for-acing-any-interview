@@ -1,5 +1,4 @@
-Chapter 13: Innovative Techniques for Standing Out in Highly Competitive Hiring Environments
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's highly competitive job market, traditional approaches to interviews may not always be sufficient. To truly excel, candidates often need to embrace innovative techniques that set them apart. This chapter explores creative strategies for making a memorable impression in challenging hiring environments.
 

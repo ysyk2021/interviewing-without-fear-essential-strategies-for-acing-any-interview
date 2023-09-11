@@ -1,5 +1,4 @@
-Chapter 11: Demonstrating Leadership Skills and Potential
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how to effectively demonstrate your leadership skills and potential during an interview. Whether you're applying for a leadership role or not, showcasing your ability to lead and influence can significantly enhance your candidacy.
 

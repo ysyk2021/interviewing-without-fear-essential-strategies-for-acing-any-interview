@@ -1,5 +1,4 @@
-Chapter 3: Strategies for Building Confidence and Overcoming Fear
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies to help you build confidence and conquer the fear that often accompanies the interview process. Overcoming interview anxiety is essential for presenting your best self and increasing your chances of success.
 

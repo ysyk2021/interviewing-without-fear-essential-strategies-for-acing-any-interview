@@ -1,5 +1,4 @@
-Chapter 10: Techniques for Answering Difficult or Unexpected Questions
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Interviews often present a variety of questions, including those that catch you off guard or delve into challenging topics. In this chapter, we'll explore effective strategies to handle difficult or unexpected questions with confidence and poise.
 

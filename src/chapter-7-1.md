@@ -1,5 +1,4 @@
-Chapter 4: Identifying Your Unique Selling Points
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial process of identifying your unique selling points (USPs). Your USPs are the qualities, experiences, and attributes that set you apart from other candidates and make you a compelling choice for the job. Understanding and effectively communicating your USPs can significantly enhance your chances of acing any interview.
 

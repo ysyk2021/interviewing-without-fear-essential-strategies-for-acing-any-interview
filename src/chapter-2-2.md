@@ -1,5 +1,4 @@
-Chapter 2: What to Expect During the Interview Process
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the various stages of the interview process and provide you with a comprehensive overview of what to expect. Understanding the interview process can help alleviate anxiety and better prepare you for a successful interview.
 

@@ -1,5 +1,4 @@
-Chapter 13: Techniques for Continuous Improvement of Your Interviewing Skills
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll explore various techniques and strategies for continuously improving your interviewing skills. Interviewing is not just about acing one interview; it's about building a foundation for long-term success in your career.
 

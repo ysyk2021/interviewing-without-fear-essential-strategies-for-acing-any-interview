@@ -1,5 +1,4 @@
-Chapter 3: Crafting a Resume and Cover Letter That Stand Out
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the art of creating a compelling resume and cover letter that make a strong impression on potential employers. Your resume and cover letter are often the first documents a hiring manager sees, so it's crucial to make them stand out from the crowd.
 

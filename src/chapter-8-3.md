@@ -1,5 +1,4 @@
-Chapter 15: Second-Round and Final Interviews
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Second-round and final interviews are critical stages in the job application process. In this chapter, we will explore essential strategies and insights to help you excel in these advanced interview rounds and secure your dream job.
 

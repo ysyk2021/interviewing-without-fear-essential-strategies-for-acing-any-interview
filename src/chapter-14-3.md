@@ -1,5 +1,4 @@
-Chapter 16: Identifying Areas for Improvement and How to Address Them
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss the critical process of self-assessment and improvement in your interviewing skills. Identifying areas for growth and implementing strategies to address them is essential for continuous development and success in interviews.
 

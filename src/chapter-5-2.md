@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Managing Interview Anxiety
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective techniques for managing interview anxiety. Interview anxiety is a common experience, but with the right strategies, you can harness nervous energy and present your best self during the interview process.
 

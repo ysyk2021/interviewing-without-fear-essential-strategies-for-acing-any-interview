@@ -1,5 +1,4 @@
-Chapter 6: How to Prepare for Each Stage of the Interview Process
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial aspect of interview preparation, focusing on the different stages of the interview process. Preparing effectively for each stage is essential for boosting your confidence and success in acing any interview.
 

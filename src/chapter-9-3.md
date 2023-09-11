@@ -1,5 +1,4 @@
-Chapter 15: What to Do If You Don't Get the Job
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential strategies and techniques for handling rejection gracefully and effectively when you don't get the job you interviewed for. Facing rejection is a natural part of the job search process, and how you respond to it can impact your future career opportunities.
 
